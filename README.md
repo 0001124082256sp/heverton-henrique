@@ -1,6 +1,6 @@
 # heverton-henrique moraes de oliveira
 
-boas vindo meu é heverton henrique
+boas vindo meu mome é heverton henrique
 
 estou estudando na alura
 
